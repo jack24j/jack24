@@ -3,7 +3,7 @@
 I’m a **SEO Specialist & Digital Marketing Writer** from Cambodia.  
 I help websites rank higher through content strategy and backlink optimization.
 
-🚀 Saat ini saya sedang nulis di [zaanferry.com]((https://www.zaanferry.com/dienstregeling/)):
+🚀 Saat ini saya sedang nulis di [zaanferry.com](https://www.zaanferry.com/dienstregeling/):
 - 🔑 Keyword Research
 - ✍️ SEO-friendly Copywriting
 - 🔗 Manual Backlink Building
